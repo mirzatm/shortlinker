@@ -1,1 +1,1 @@
-<a href=http://tlgrm.me/mirzateam>MIRZA TEAM<a/>
+<a href=http://tlgrm.me/mirzateam><h1>MIRZA TEAM<h1/><a/>
